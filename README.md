@@ -1,0 +1,1 @@
+mug cake is a yummy recipie which is done in 5 mins and does not require an oven, and does not consist of egg.
